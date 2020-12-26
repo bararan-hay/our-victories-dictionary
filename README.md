@@ -1,5 +1,5 @@
 ## Ռազմական Բառարան
-«Մեր հաղթանակները» քառահատորյակի Գ և Դ հատորներից. 
+«Մեր հաղթանակները» քառահատորյակի [Գ](http://www.noravank.am/upload/pdf/Our%20Victories%203.pdf) և [Դ](http://www.noravank.am/upload/pdf/Our%20Victories%20IV.pdf) հատորներից. 
 
 Երևան, «Նորավանք» ԳԿՀ, 2011, 2012 
 
